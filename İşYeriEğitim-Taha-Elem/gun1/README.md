@@ -1,2 +1,0 @@
-# Isyeri-Egitmi-Taha-Elem
- 
